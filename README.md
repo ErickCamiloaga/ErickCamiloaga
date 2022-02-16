@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ErickCamiloaga
-- 👀 I’m interested in ...aprender mucho mas sobre progracion 
+- 👀 I’m interested in ...aprender mucho mas sobre programacion 
 - 🌱 I’m currently learning ...a utilizar esta plataforma
 - 📫 How to reach me ...a mi correo personal que es fercamiloaga@gmail.com
 
